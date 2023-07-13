@@ -1,3 +1,3 @@
-Ivan Sy, a recent graduate at the University of Washington Tacoma
+A recent graduate at the University of Washington Tacoma
 
-Message me at ivansyrupy@gmail.com
+Feel free to message me at ivansyrupy@gmail.com
